@@ -15,5 +15,4 @@ enta notebook koode full generate cheyth set aaki supload cheyo
 
 febin-
 bro everyonedoin fine?
-
-
+suttu endhaiii?
